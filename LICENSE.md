@@ -1,4 +1,4 @@
-
+Get the ultimate Craft for macOS plugin with instant Plugin for Craft for macOS - goal tracking and database templates. Featuring goal tracking and database templates, it's the
 
 
 
